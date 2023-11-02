@@ -5,4 +5,4 @@
 \/    \/\_/\_/  \___/|_|\_\_|\_\_|   
 ```
 
-UK Radio Amateur
+UK Radio Amateur, Pentester and Student (Again).
